@@ -1,0 +1,2 @@
+# fuccboi
+Bitcoin mining
